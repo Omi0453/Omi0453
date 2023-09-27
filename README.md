@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Omi0453
 - 👀 I’m interested in CyberSecuriy
-- 🌱 I’m currently Computer Science
+- 🌱 I’m currently Pursuing Computer Science
 - 📫 How to reach me #INSTA @omi.jadhav143
 
 <!---
